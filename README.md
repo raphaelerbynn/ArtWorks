@@ -1,2 +1,2 @@
 # ArtWorks
-Designs and artworks with photoshop and adobe draw illustrator
+Designs and artworks with Adobe photoshop and Adobe draw illustrator
